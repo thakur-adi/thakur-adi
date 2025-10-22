@@ -2,7 +2,7 @@
 
 - An avid gamer🕹️ and a skilled Game Developer💻 with 3+ years of experience.<br/>
 - I use Unreal Engine to create immersive and engaging video games🎮 for various platforms and genres.<br/>
-- Currently at Beyond Labs (Creators of Bullieverse🐂).<br/>
+- Previously at Beyond Labs (Creators of Bullieverse🐂).<br/>
 - I sometimes put my work on YouTube- https://www.youtube.com/channel/UCVxa3vFWipmYtWB9NxuxjPg
 
 
